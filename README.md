@@ -10,4 +10,4 @@
 ---
 
 
-Get PowerPoint Presentation document [Here](https://drive.google.com/drive/u/1/folders/1ikxjMlUfKkn_cdFLBhGHru8mxklJUnXO)
+Get PowerPoint Presentation document [Here](https://docs.google.com/presentation/d/1vEF2_WSc82R5YTntoWl_Qofeoa8woQV-/edit?usp=sharing&ouid=103381983500880505885&rtpof=true&sd=true)
